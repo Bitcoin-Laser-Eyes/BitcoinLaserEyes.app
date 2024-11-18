@@ -1,7 +1,7 @@
 
 Privacy Policy for Bitcoin Laser Eyes
 
-Effective Date: 5/1/2023
+Effective Date: 11/1/2024
 
 Introduction
 
